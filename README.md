@@ -16,6 +16,16 @@ For a school to become part of Oak United Trust, it must meet the following **Br
 
 **[5]** A functioning **fire alarm system** must be installed and maintained
 
+**[6]** All staff members must follow the Discord age requirement __13 or 13+__ 
+
+**[7]** The school campus cannot be copied and you must have a licence.
+
+**[8]** if you do not have a logo a logo will be provided for you via Oak.
+
+**[9]** When you have successfully joined our trust you will need to change the name of your school community to Academy and __add oak united add the end or oak__
+
+**[10]** when you are doing a global ban consult the Executive head teacher.
+
 ---
 
 ### **Staff Team & Governance**
